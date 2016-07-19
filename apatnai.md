@@ -1,1 +1,1 @@
-Text goes here
+My favorite city is Seattle
