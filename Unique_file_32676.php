@@ -1,1 +1,1 @@
-obiquitess uniqueness
+obiquitous uniqueness
